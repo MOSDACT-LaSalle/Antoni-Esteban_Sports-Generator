@@ -1,7 +1,5 @@
 # Antoni Esteban Martret_Sports Generator
-Processing Live Project
-Master in Digital Arts and Creative Technologies
-La Salle Ramon Llull
+Processing Live Project_Master in Digital Arts and Creative Technologies_La Salle Ramon Llull
 
 ## Live Recording Video
 https://vimeo.com/1019019549?share=copy#t=0
