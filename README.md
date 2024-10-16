@@ -5,7 +5,6 @@ Processing Final Live Project
 https://vimeo.com/1019019549?share=copy#t=0
 
 ## Concept
-
 Framed by the digital as it mirrors the physical. 
 
 It is not just about sports; it is about rhythm, intensity,
