@@ -5,12 +5,12 @@ Processing Final Live Project
 https://vimeo.com/1019019549?share=copy#t=0
 
 ## Concept
-Framed by the digital as it mirrors the physical. <br>
+Framed by the digital as it mirrors the physical.
 
-It is not just about sports; it is about rhythm, intensity,<br>
+It is not just about sports; it is about rhythm, intensity,
 and the beauty of moments slipping and bouncing into chaos.
 
-A crescendo of code and sound, pushing the limits of what happens <br>
+A crescendo of code and sound, pushing the limits of what happens
 when we let machines interpret our most human moments of performance.
 
 ## Song
